@@ -1,2 +1,2 @@
 # lingqiang0915.github.io
-个人网站
+欢迎进入，我的个人网站
